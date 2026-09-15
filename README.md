@@ -4,5 +4,4 @@
   <img src="https://komarev.com/ghpvc/?username=Soldier-Teto" alt="Profile Views">
 </p>
 
-
 <p align="center"><img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/6635846e-50dd-475c-9a0c-4bfb52956767" />
