@@ -12,3 +12,9 @@ mah poneh tawn status (READ IT OK ITS 100% VERY IMPORTANT GRRR)
 <p align="left">🌜 away (i couldnt find a better emoji ok shut up abt it) - afk
 <p align="left">looking for chat/rp not invited lol
 always c+h frly (unless i have dni/dniuf/dniup
+  
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7okxfwrtlaa6muq2etukegowq&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7okxfwrtlaa6muq2etukegowq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false">
+  </a>
+</p>
