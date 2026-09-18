@@ -10,7 +10,7 @@ mah poneh tawn status (READ IT OK ITS 100% VERY IMPORTANT GRRR)
 <p align="left">🟢 online - int freely / PLS INT I NEED FRIENDS GRRRRRR AUGHHHHHHHH
 <p align="left">⛔ busy - half busy / s.afk / gaming / int freely ok
 <p align="left">🌜 away (i couldnt find a better emoji ok shut up abt it) - afk
-<p align="left">looking for chat/rp not invited lol (if i have it on then i kinda need friends ok) 
+<p align="left">looking for chat/rp not invited lol (if i have it on then it means what it says ok) 
 always c+h frly (unless i have dni/dniuf/dniup
   
 <p align="center">
