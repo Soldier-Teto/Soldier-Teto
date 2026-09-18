@@ -19,4 +19,4 @@ always c+h frly (unless i have dni/dniuf/dniup
   </a>
 </p>
 
-<p align="center"><img width="3787" height="2000" alt="Image" src="https://github.com/user-attachments/assets/a3a4bf6b-28c4-4b58-ac07-d404fedc4ab4" />
+<p align="center"><img width="3787" height="2000" alt="Image" src="https://github.com/user-attachments/assets/b4084f5c-dca4-44ab-8385-bf7887965fde" />
