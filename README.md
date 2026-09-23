@@ -18,6 +18,7 @@ always c+h frly (unless i have dni/dniuf/dniup
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7okxfwrtlaa6muq2etukegowq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false">
   </a>
 </p>
+<img src="https://img. shields. io/github/followers/Soldier-Teto" alt="Followers">
 
 
 <p align="center"><img width="3787" height="2000" alt="Image" src="https://github.com/user-attachments/assets/b4084f5c-dca4-44ab-8385-bf7887965fde" />
