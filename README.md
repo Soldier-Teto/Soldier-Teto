@@ -19,6 +19,6 @@ always c+h frly (unless i have dni/dniuf/dniup
   </a>
 </p>
 
-<p align="center">ty for ![Followers](https://img&#46;shields&#46;io/github/followers/Soldier-Teto)
+ty for ![Followers](https://img&#46;shields&#46;io/github/followers/Soldier-Teto)
 
 <p align="center"><img width="3787" height="2000" alt="Image" src="https://github.com/user-attachments/assets/b4084f5c-dca4-44ab-8385-bf7887965fde" />
