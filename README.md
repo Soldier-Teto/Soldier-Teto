@@ -1,7 +1,7 @@
 <img width="2000" height="200" alt="Image" src="https://github.com/user-attachments/assets/cda004ae-75f6-4c57-a9ba-605a8a0f28ca" />
 
 ![Profile Views](https://komarev.com/ghpvc/?username=Soldier-Teto&color=9478E1&label=💜🩵)
-mah poneh tawn status (READ IT OK ITS 100% VERY IMPORTANT GRRR) 
+<p align="left">mah poneh tawn status (READ IT OK ITS 100% VERY IMPORTANT GRRR) 
 <p align="left">🟢 online - int freely / PLS INT I NEED FRIENDS GRRRRRR AUGHHHHHHHH
 <p align="left">⛔ busy - half busy / s.afk / gaming / int freely ok
 <p align="left">🌜 away (i couldnt find a better emoji ok shut up abt it) - afk
