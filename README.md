@@ -1,15 +1,16 @@
 <img width="2000" height="200" alt="Image" src="https://github.com/user-attachments/assets/cda004ae-75f6-4c57-a9ba-605a8a0f28ca" />
 
 ![Profile Views](https://komarev.com/ghpvc/?username=Soldier-Teto&color=9478E1&label=💜🩵)
-
-<p align="center"><img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/6635846e-50dd-475c-9a0c-4bfb52956767" />
-
-mah poneh tawn status (READ IT OK ITS 100% VERY IMPORTANT GRRR) 
 <p align="left">🟢 online - int freely / PLS INT I NEED FRIENDS GRRRRRR AUGHHHHHHHH
 <p align="left">⛔ busy - half busy / s.afk / gaming / int freely ok
 <p align="left">🌜 away (i couldnt find a better emoji ok shut up abt it) - afk
 <p align="left">looking for chat/rp not invited lol (if i have it on then it means what it says ok) 
-always c+h frly (unless i have dni/dniuf/dniup
+<p align="left">always c+h frly (unless i have dni/dniuf/dniup) 
+  
+<p align="center"><img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/6635846e-50dd-475c-9a0c-4bfb52956767" />
+
+mah poneh tawn status (READ IT OK ITS 100% VERY IMPORTANT GRRR) 
+
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7okxfwrtlaa6muq2etukegowq&redirect=true">
