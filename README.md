@@ -2,7 +2,7 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=Soldier-Teto&color=9478E1&label=💜🩵) 
 <p align="left">mah poneh tawn status (READ IT OK ITS 100% VERY IMPORTANT GRRR) 
-<p align="left">🟢 online - int freely / PLS INT I NEED FRIENDS GRRRRRR AUGHHHHHHHH <img align= "right" width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/27d0e3a5-1e92-444a-a580-98fed0bb11ea" />
+<p align="left">🟢 online - int freely / PLS INT I NEED FRIENDS GRRRRRR AUGHHHHHHHH  <img align= "right" width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/27d0e3a5-1e92-444a-a580-98fed0bb11ea" />
 <p align="left">⛔ busy - half busy / s.afk / gaming / int freely ok 
 <p align="left">🌜 away (i couldnt find a better emoji ok shut up abt it) - afk
 <p align="left">looking for chat/rp not invited lol (if i have it on then it means what it says ok) 
