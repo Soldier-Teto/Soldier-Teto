@@ -9,8 +9,7 @@
 <p align="left">always c+h frly (unless i have dni/dniuf/dniup) 
   
 <p align="center"><img width="2000" height="200" alt="Image" src="https://github.com/user-attachments/assets/40f33c25-82fb-40b0-8ed9-4e63e457e8f9" />
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7okxfwrtlaa6muq2etukegowq&redirect=true">
+<p align= "left"><img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/5990352c-7ee2-4c7d-b271-e55d5caf98ab" /> <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/64936593-c19a-4585-ab6f-f0075fcbf7d8" /> <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7okxfwrtlaa6muq2etukegowq&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7okxfwrtlaa6muq2etukegowq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false">
   </a>
 </p>
